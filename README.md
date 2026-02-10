@@ -1,0 +1,2 @@
+# IAmoviles_Act5_AppFloreriaCard_Gpo_6I
+propiedades de AppFloreria 6I
